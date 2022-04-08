@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ArshGauttam
 - 👀 I’m interested in Building Dreams.
-- 🌱 I’m currently learning & building Startup.
 - 💞️ I’m looking to collaborate on @collabrative dreams.
 - 📫 How to reach me @ arshgauttam@gmail.com
 
